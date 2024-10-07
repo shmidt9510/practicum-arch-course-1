@@ -48,4 +48,4 @@
 
 
 ### Задача 2
-[тык сюда на яндекс диск](https://disk.yandex.ru/d/BnWMmWjZSPWNfA)
+[тык сюда на яндекс диск](https://disk.yandex.ru/d/OKa4jDQYChNZJw)
